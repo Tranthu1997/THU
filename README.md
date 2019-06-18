@@ -1,2 +1,0 @@
-# THU
-HIHIHI
